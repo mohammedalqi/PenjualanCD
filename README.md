@@ -9,4 +9,4 @@ Anggota Kelompok:
 4. 11200930000004, Maisa Tsara Shabirah
 5. 11200930000005, M Alqi Fahrezi
 
-Terlampir juga screenshot aplikasi dan video demo yang kami buat. Terima kasih!
+Terlampir juga screenshot aplikasi dan video demo yang kami buat. Untuk link video demo bisa dilihat disini: https://youtu.be/Wx_RN-6iYxM Terima kasih!
